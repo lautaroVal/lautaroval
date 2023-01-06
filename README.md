@@ -1,4 +1,4 @@
-## Hola soy Lauti valenzuela 👋😎
+## Hi, I'm Lautaro!!! 👋😎
 
 ### Here are some ideas to get started:
 - 🔭 I am currently working on...
